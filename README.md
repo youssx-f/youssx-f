@@ -1,7 +1,7 @@
-## Hi there 👋# Youssef Amr Abdelkader
+# Youssef Amr Abdelkader
 
 **Computer Science & Engineering @ German University in Cairo (GUC)**  
-📍 Cairo, Egypt | 📫 youssefamrabdelkader@gmail.com | 🔗 LinkedIn: in/youssef-amr-4160461b5
+📍  Cairo, Egypt | 📫 youssefamrabdelkader@gmail.com | 🔗 LinkedIn: in/youssef-amr-4160461b5
 
 ---
 
